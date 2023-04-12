@@ -1,5 +1,2 @@
 # FREE-NITRO-GEN-
-free nitro gen free نينيت
-git clone the link 
-cd to the dir 
-python3 the file name
+free nitro gen free نينيت no virus 100% real no fakeزيزسنتيتيتيويويوتياي
